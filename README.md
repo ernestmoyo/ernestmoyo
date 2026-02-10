@@ -1,6 +1,6 @@
 Hi there 👋  
 
-I’m a quantitative epidemiologist and data scientist.
+I’m a quantitative epidemiologist and data scientist. Turning Africa's challenges into OPPORTUNITIES!
 
 🦟 Vector Atlas PhD Applied Mathematics Candidate: improving high‑resolution malaria risk maps development framework for Africa. 
 
